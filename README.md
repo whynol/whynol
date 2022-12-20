@@ -1,1 +1,1 @@
-scrivo codice per passare del tempo e produco
+scrivo codice per passare del tempo e produco.
